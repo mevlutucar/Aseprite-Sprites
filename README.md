@@ -17,6 +17,14 @@
 ![fridge](https://github.com/user-attachments/assets/6650de9c-b7b7-4a3b-904a-7e552bf0d459)
 
 
+## Background Sprite
+
+![BGAll](https://github.com/user-attachments/assets/9cbbe7e4-f9ea-4987-8ce4-d7454f78eeef)
+
+
+
+
+
 
 
 
