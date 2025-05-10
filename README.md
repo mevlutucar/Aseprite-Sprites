@@ -23,6 +23,12 @@
 
 ![BGSun](https://github.com/user-attachments/assets/01edd5fb-17a6-4ae3-a1f5-99baaaa59ee9)
 
+## Bird Sprites
+
+![whiteEyeBird](https://github.com/user-attachments/assets/6daab1ea-822a-4567-90db-132814571281)
+
+
+
 
 
 
