@@ -27,6 +27,7 @@
 
 ![whiteEyeBird](https://github.com/user-attachments/assets/6daab1ea-822a-4567-90db-132814571281)
 
+![whiteEyeBirdIdle1](https://github.com/user-attachments/assets/ff2d173f-6d82-46b5-b9cc-42c7b6b64a3d)
 
 
 
